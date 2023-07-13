@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Obstacles to Listing: Common Obstacles to Listing
+Common Obstacles to Listing
 =======================================================================
 
 Listing can be a powerful tool for personal and professional success, but it's not always easy to stick to. Life is full of distractions and obstacles that can prevent us from staying organized and on track. In this chapter, we'll explore some common obstacles to listing.

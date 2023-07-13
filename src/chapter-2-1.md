@@ -1,4 +1,4 @@
-Chapter 2: Understanding the Magic of Listing: Definition of Listing as a Tool for Success
+Definition of Listing as a Tool for Success
 ==========================================================================================
 
 Listing is a powerful tool for personal and professional success. At its core, listing is simply the act of writing down tasks, goals, or ideas in list format. However, the benefits of listing go far beyond the simple act of putting pen to paper.

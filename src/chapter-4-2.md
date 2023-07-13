@@ -1,4 +1,4 @@
-Chapter 4: Creating and Tracking Goals Through Listing: Strategies for Aligning Lists with Goals and Priorities
+Strategies for Aligning Lists with Goals and Priorities
 ===============================================================================================================
 
 In this chapter, we will explore strategies for aligning lists with goals and priorities. By ensuring that our lists are in line with our goals and priorities, we can maximize the effectiveness of listing as a tool for personal and professional success.

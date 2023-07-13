@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Effective List-Making: Techniques for Creating Effective Lists
+Techniques for Creating Effective Lists
 ========================================================================================
 
 In this chapter, we will explore techniques for creating effective lists. By using these techniques, individuals can maximize the effectiveness of listing as a tool for achieving personal and professional success.

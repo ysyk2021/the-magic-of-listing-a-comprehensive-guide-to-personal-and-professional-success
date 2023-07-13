@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Effective List-Making: Examples of Individuals who Successfully Used Effective List-Making Techniques
+Examples of Individuals who Successfully Used Effective List-Making Techniques
 ===============================================================================================================================
 
 In this chapter, we will explore examples of individuals who have successfully used effective list-making techniques to achieve their goals and dreams. By studying these examples, we can gain inspiration and insights into how to use listing as a tool for personal and professional success.

@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of listing as a tool for success](chapter-1-1.md)
   - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding the Magic of Listing](chapter-2.md)
@@ -36,8 +35,5 @@
   - [Importance of collaboration in listing](chapter-9-1.md)
   - [Strategies for effective collaboration with others to maximize efficiency and productivity](chapter-9-2.md)
   - [Examples of successful collaborations that utilized listing techniques](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Summary of key points](chapter-10-1.md)
-  - [Final thoughts on the magic of listing and a comprehensive guide to personal and professional success](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

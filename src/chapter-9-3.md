@@ -1,4 +1,4 @@
-Chapter 9: Collaborating Through Listing: Examples of Successful Collaborations that Utilized Listing Techniques
+Examples of Successful Collaborations that Utilized Listing Techniques
 ================================================================================================================
 
 Collaborative listing can be a powerful tool for achieving success in personal and professional goals. By sharing lists and working together, teams can achieve greater efficiency, productivity, and success. In this chapter, we'll explore examples of successful collaborations that utilized listing techniques.

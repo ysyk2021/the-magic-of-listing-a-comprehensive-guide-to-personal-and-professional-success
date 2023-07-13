@@ -1,4 +1,4 @@
-Chapter 5: Leveraging Technology for Listing: Importance of Leveraging Technology in Listing
+Importance of Leveraging Technology in Listing
 ============================================================================================
 
 In this chapter, we will explore the importance of leveraging technology in listing. Technology has revolutionized the way we work and live, and can be a powerful tool for improving our listing practices.

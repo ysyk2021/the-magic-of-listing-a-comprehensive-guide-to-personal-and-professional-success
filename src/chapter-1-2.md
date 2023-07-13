@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================================
 
 "The Magic of Listing: A Comprehensive Guide to Personal and Professional Success" is a guidebook for anyone looking to improve their organization and productivity skills. In this book, we explore the power of listing and how it can be used as a tool to achieve personal and professional success.

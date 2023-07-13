@@ -1,4 +1,4 @@
-Chapter 8: Applying Listing to Professional Life: Strategies for Using Listing to Increase Productivity and Success at Work
+Strategies for Using Listing to Increase Productivity and Success at Work
 ===========================================================================================================================
 
 Listing is a powerful tool for achieving professional success. By using listing techniques to organize your work life, you can achieve greater efficiency, productivity, and overall success. In this chapter, we'll explore some strategies for using listing to increase productivity and success at work.
