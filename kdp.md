@@ -8,7 +8,6 @@ Through this book, readers will learn how to develop effective lists that can he
 
 Whether you're looking to improve your time management skills, reduce stress and anxiety, or achieve greater balance and fulfillment in your personal and professional life, The Magic of Listing can help you unlock your full potential for success. By embracing the power of lists, readers can cultivate a more vibrant, productive, and fulfilling life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
