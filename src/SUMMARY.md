@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of listing as a tool for success](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding the Magic of Listing](chapter-2.md)
   - [Definition of listing as a tool for success](chapter-2-1.md)
   - [Common misconceptions about listing](chapter-2-2.md)
