@@ -1,5 +1,3 @@
-Summary of Key Points
-=============================================
 
 Throughout this book, we've explored the power of listing as a tool for personal and professional success. From overcoming obstacles to achieving goals, listing can help you stay organized, focused, and on track. Here's a summary of some key points we've covered:
 

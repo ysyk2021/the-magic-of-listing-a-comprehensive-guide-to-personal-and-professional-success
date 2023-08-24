@@ -1,5 +1,3 @@
-Chapter 8: Applying Listing to Professional Life
-================================================
 
 In this chapter, we will explore the importance of applying listing to professional life, as well as strategies and examples for using listing to increase productivity and success at work.
 

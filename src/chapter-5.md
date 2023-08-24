@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Technology for Listing
-============================================
 
 In this chapter, we will explore the importance of leveraging technology in listing, as well as techniques and examples for using digital tools to maximize efficiency and productivity.
 

@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Effective List-Making
-===============================================
 
 Lists are an essential tool for personal and professional success. They help us stay organized, focused, and productive. However, not all lists are created equal. In this chapter, we'll explore techniques for creating effective lists, strategies for organizing and prioritizing them, and examples of individuals who successfully used these techniques to achieve their goals.
 

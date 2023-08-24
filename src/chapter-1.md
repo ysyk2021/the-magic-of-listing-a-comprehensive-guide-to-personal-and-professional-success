@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Listing is a powerful tool for personal and professional success. By breaking down larger tasks into smaller, more manageable sub-tasks, you can prioritize your workload, manage your time more effectively, and reduce stress associated with overwhelming tasks or deadlines. In this chapter, we'll provide an introduction to the importance of listing as a tool for success and an overview of the book's contents.
 

@@ -1,5 +1,3 @@
-Chapter 4: Creating and Tracking Goals Through Listing
-======================================================
 
 In this chapter, we will explore techniques for creating and tracking goals through listing, strategies for aligning lists with goals and priorities, and examples of individuals who successfully created and tracked goals through listing.
 
