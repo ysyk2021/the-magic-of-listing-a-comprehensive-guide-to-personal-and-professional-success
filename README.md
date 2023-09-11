@@ -1,3 +1,6 @@
+# The Magic of Listing: A Comprehensive Guide to Personal and Professional Success
+
+Book Link: [https://zhengpublishing.com/the-magic-of-listing-a-comprehensive-guide-to-personal-and-professional-success/](https://zhengpublishing.com/the-magic-of-listing-a-comprehensive-guide-to-personal-and-professional-success/)
 
 The Magic of Listing: A Comprehensive Guide to Personal and Professional Success is a transformative book that offers a comprehensive guide to the power of lists for achieving personal and professional success. In today's fast-paced world, where distractions abound and time is limited, lists can provide a sense of order and control that can help us achieve our goals and dreams.
 
